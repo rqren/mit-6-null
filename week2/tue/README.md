@@ -1,0 +1,1 @@
+Finished the tasks and I will start week3 tomorrow.
