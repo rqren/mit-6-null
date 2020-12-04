@@ -1,0 +1,1 @@
+Learned a lot about vim and tried to under stand the vimrc of instructors.
