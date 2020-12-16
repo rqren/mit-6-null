@@ -1,1 +1,1 @@
-Busy today.
+Watched the lecture.
